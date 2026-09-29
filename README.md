@@ -1,4 +1,4 @@
 # beton69420-s-cool-legacy-ios-creations
 # beton69420's cool legacy iOS creations
 
-i wanna make legacy ios game better again, well, more like restored but whatever,basically i restore deleted games from the app store and make them playable again
+i wanna make legacy ios game better again, well, more like restored but whatever,basically i restore deleted games from the app store (e.g Angry Birds Go! and Cars : As Fast As Lightning) and make them playable again, i also wanna hack legacy ios games too so yall can see what its liek to cheat >:) i am currently making Asphalt 8 Ultra which i will be revealing what it does innthe full v1.0 release, anyways inmainly focus on iOS 6.1.x cuz i only have that iOS and iOS 6 is my personal favorite iOS version (im not a larper i swear)
